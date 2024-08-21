@@ -67,6 +67,7 @@
 | -----| ------- |------------ | ---- |
 | RMEDU Student Club | | বিকাশ - 01876218691 ( Tanvir Ahmed, RME-06 ) নগদ - 01775117214 ( Md Shamsuddin, RME-06 ) | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl) |
 | CSEDU Student Club | | বিকাশ - 01792941694 ( Himel Roy- 27 ), রকেট - 017789566113 ( Md Shariful Islam - 27 ) | [link](https://www.facebook.com/share/p/vGm3wwjkkDQkihjT/)|
+| Economics Study Center, University of Dhaka | | বিকাশ , নগদ : 01868107062  ( হাসিব ), বিকাশ : 01781817732 ( অর্নব  ), বিকাশ, নগদ , রকেট : 01705672525 ( রাজগীর ) | [link](https://www.facebook.com/share/p/iW94zQqQeSEnDNpH/)|
 | Project তরী, Green Youth Association | 01405341749, 01855039015, 01305305670, 01951196677, 01616033359, 01864955868 | বিকাশ: 01305305670 , 01951196677, নগদ: 01951196677, 01864955868, রকেট: 01951196677 | [link](https://www.facebook.com/rmedusc/posts/pfbid02GR5VtYbu3qpdxXPBJcNTLeT8TyezeXXtanLqGwcJrkCT9ZyNJycDmifY32XbqD6Jl) |
 | As-Sunnah Foundation | | | [link](https://assunnahfoundation.org/donate/flood) |
 
